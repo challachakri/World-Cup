@@ -1,4 +1,10 @@
-jfaernd
-eiorjasd
-rjjiewhg
-sejshgs
+India
+England
+Australia
+NewZealand
+Afghanisthan
+SriLanka
+WestIndies
+SouthAfrica
+Bangladesh
+Pakistan
